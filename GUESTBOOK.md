@@ -17,5 +17,5 @@ HEYYA check out my [website](https://bymi15.github.io) 😆
 ### Alex Nathanail
 ![](https://i.redd.it/hqculc19byl11.jpg)
 
-### Suraj Kothari
-I love Chrisopher Nolan movies!!!
+### Joshua Darmon
+hey people, i suck at league
